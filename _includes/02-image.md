@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Nature](https://w7.pngwing.com/pngs/412/745/png-transparent-environmental-protection-conservation-natural-environment-nature-environmental-toxicology-natural-environment-hand-grass-environmentally-friendly.png)
